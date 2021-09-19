@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Predobrey.github.io/rsschool-cv/cv
